@@ -21,6 +21,8 @@ Eventhough there are many obstacles and pain gone through, Majnun never ever giv
 Akhirnya Laila & majnun happy dapat pergi genting sama2.
 Yahooo tamat sudah. 
 Mana2 rancak berdosa...
+Geng jom balik. dah pkl 5 ni..
+Happy wknd guys..
 
 ---
 
