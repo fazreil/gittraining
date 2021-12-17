@@ -17,6 +17,9 @@
 
 ---
 # Chapter vi
+Akhirnya Laila & majnun happy dapat pergi genting sama2.
+Yahooo tamat sudah. 
+Mana2 rancak berdosa...
 
 ---
 
