@@ -12,7 +12,7 @@ bersama ditemani bulan dan bintang. Tiada masa untuk berduka diantara mereka. Be
 Laila diculik oleh penjahat. Majnun risau memikirkan Laila.
 ---
 # Chapter iv
-Laila melarikan diri dari istana selepas Majnun sakit tenat.  Majnun masih terbaring tak sedarkan diri.
+Laila melarikan diri dari istana selepas Majnun sakit tenat.  Majnun masih terbaring tak sedarkan diri...
 ---
 # Chapter v
 Eventhough there are many obstacles and pain gone through, Majnun never ever give up. He willing to sacrifice everything for love. Love is a priceless gift given by God to us.
