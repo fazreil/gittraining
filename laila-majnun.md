@@ -8,7 +8,7 @@
 
 ---
 # Chapter iii
-
+Laila diculik oleh penjahat. Majnun risau memikirkan Laila.
 ---
 # Chapter iv
 
