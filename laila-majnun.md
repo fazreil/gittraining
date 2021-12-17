@@ -1,6 +1,6 @@
 
 # Laila Majnun
-
+diajdap
 ---
 # Chapter i
 laila ni maksudnya malam. tapi dalam banyak2 malam2 kan? malam apa yg sunyi?.. malam i tanpa you. muah ciked
