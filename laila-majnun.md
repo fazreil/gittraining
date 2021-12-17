@@ -11,7 +11,7 @@
 
 ---
 # Chapter iv
-
+Laila melarikan diri dari istana selepas Majnun sakit tenat.  Majnun masih terbaring tak sedarkan diri.
 ---
 # Chapter v
 
