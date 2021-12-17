@@ -22,6 +22,8 @@ Love is pain. But at the end, it is a gain
 Akhirnya Laila & majnun happy dapat pergi genting sama2.
 Yahooo tamat sudah. 
 Mana2 rancak berdosa...
+Geng jom pulang.. pkl 5 suda..
+Hepi wknd guys..
 
 ---
 
