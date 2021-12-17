@@ -2,7 +2,7 @@
 
 ---
 # Chapter i
-laila ni maksudnya malam
+laila ni maksudnya malam. tapi dalam banyak2 malam2 kan? malam apa yg sunyi?.. malam i tanpa you. muah ciked
 ---
 # Chapter ii
 Berjumpa bercanda semuanya manis dan gembira. Suatu hari di Hari Raya. Laila Majnun makan 
