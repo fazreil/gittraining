@@ -17,6 +17,9 @@ Laila diculik oleh penjahat. Majnun risau memikirkan Laila.
 
 ---
 # Chapter vi
+Akhirnya Laila & majnun happy dapat pergi genting sama2.
+Yahooo tamat sudah. 
+Mana2 rancak berdosa...
 
 ---
 
