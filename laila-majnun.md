@@ -2,13 +2,14 @@
 
 ---
 # Chapter i
-
+laila ni maksudnya malam
 ---
 # Chapter ii
-
+Berjumpa bercanda semuanya manis dan gembira. Suatu hari di Hari Raya. Laila Majnun makan 
+bersama ditemani bulan dan bintang. Tiada masa untuk berduka diantara mereka. Begitulah percintaan diantara mereka.
 ---
 # Chapter iii
-
+Laila diculik oleh penjahat. Majnun risau memikirkan Laila.
 ---
 # Chapter iv
 Laila melarikan diri dari istana selepas Majnun sakit tenat.  Majnun masih terbaring tak sedarkan diri.
@@ -17,6 +18,9 @@ Laila melarikan diri dari istana selepas Majnun sakit tenat.  Majnun masih terba
 
 ---
 # Chapter vi
+Akhirnya Laila & majnun happy dapat pergi genting sama2.
+Yahooo tamat sudah. 
+Mana2 rancak berdosa...
 
 ---
 
